@@ -1,1 +1,15 @@
-# moitiagustavo
+### BEM VINDO AO MEU PERFIL 
+
+-ESTOU ESTUDANDO ALURA
+
+-ME CHAMO GUSTAVO MAIS CONHECIDO COMO MOITA
+-SOU ATLETA DE FUTBOL 
+-SOU CONHECIDO NA ESCOLA POR TODOS
+
+### VOCÊ PODE ENTRAR EM CONTATO COMIGO📫
+
+moitinho227@gmail.com
+
+@dx_moitah_
+
+![_](https://media1.tenor.com/m/fKqAw2W2LU8AAAAd/neymar-neymar-jr.gif)
